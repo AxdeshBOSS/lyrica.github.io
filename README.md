@@ -1,1 +1,1 @@
-Öncelikle merhabalar orospu çocukları lyrica nın website altyapısına hoşgeldiniz ananızı götünden sikeyim iyi günler
+Öncelikle merhabalar orospu çocukları, LyricaST nin website altyapısına hoşgeldiniz ananızı götünden sikeyim iyi günler
